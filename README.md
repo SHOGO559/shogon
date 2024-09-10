@@ -1,1 +1,1 @@
-# shogon
+# shogo izuno
